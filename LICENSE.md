@@ -1,4 +1,4 @@
-#  
+#  Experience southern mudding like never before with custom Scripts for southern mudding, the #1 Script. Includes god mode and instant win for
 
 
 
